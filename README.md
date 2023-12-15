@@ -1,5 +1,4 @@
 - I’m hotsteams417
-- I’m interested in passing COMP0035. 
 - 📫 How to reach me: uclqmmg@ucl.ac.uk
 
 <!---
